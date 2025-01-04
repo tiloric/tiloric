@@ -1,16 +1,25 @@
-## Hi there 👋
+![disc](https://github.com/user-attachments/assets/d76c43b1-596a-4b10-9c35-6bd362c18b3f)![disc](https://github.com/user-attachments/assets/d76c43b1-596a-4b10-9c35-6bd362c18b3f)![disc](https://github.com/user-attachments/assets/d76c43b1-596a-4b10-9c35-6bd362c18b3f)
+![Untitled172_20250104001047-removebg-preview](https://github.com/user-attachments/assets/24fbdcae-29c9-43e3-91e2-813df5f8b257)
+![disc](https://github.com/user-attachments/assets/d76c43b1-596a-4b10-9c35-6bd362c18b3f)![disc](https://github.com/user-attachments/assets/d76c43b1-596a-4b10-9c35-6bd362c18b3f)![disc](https://github.com/user-attachments/assets/d76c43b1-596a-4b10-9c35-6bd362c18b3f)
 
-<!--
-**tiloric/tiloric** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+<p align="center">
+HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
+</p> 
+
+<p align="center">
+sign my strawpage guys
+</p> 
+
+<p align="center">
+dan the dancer 1:07 - 2:20
+</p> 
+
+
+![cat34](https://github.com/user-attachments/assets/5499dd2b-3b69-4a73-a903-8b1fa51b823d)
+![white1](https://github.com/user-attachments/assets/5394be53-d8c1-467d-983e-4574ccc08557)
+![teeth](https://github.com/user-attachments/assets/e72172c9-eb79-49a3-b09a-2ddb724fd0d8)![teeth](https://github.com/user-attachments/assets/272d6e96-1f0d-4fc1-b3fa-173c23788669)![teeth](https://github.com/user-attachments/assets/c3c90ac2-67a2-4ecc-a9a3-f8f83864e582)![teeth](https://github.com/user-attachments/assets/b18aaa3e-ac04-41de-a17a-79cddef67a9a)![teeth](https://github.com/user-attachments/assets/ab2179d0-6725-40d1-afb3-8fc129df5d26)!![white1](https://github.com/user-attachments/assets/fb024282-a32d-450a-bc7d-17edaccd9b79)![cat34](https://github.com/user-attachments/assets/632c6663-09d4-4b05-9de0-1d95b7e73fda)
