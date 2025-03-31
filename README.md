@@ -10,7 +10,7 @@ HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 </p> 
 
 <p align="center">
-sign my strawpage guys
+sign my strawpage guys (PS I LOST THE PASSWORD TO MY ATABOOK SO I CANT RESPOND RIGHT NOW SOERY GUYS!!)
 </p> 
 
 <p align="center">
