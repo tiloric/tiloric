@@ -1,7 +1,4 @@
 
-![BBF6F940-5BA4-460D-857B-EDD261423F8B](https://github.com/user-attachments/assets/146180ea-6a4f-4995-9a01-7b4a264076f9)
-
-
 
 
 
